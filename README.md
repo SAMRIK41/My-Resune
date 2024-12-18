@@ -1,1 +1,1 @@
-# My-Resune
+Aspiring software developer with a strong foundation in Electronics and Communication Engineering (ECE) and expertise in Java, Python, and frontend development. Skilled in crafting efficient and user-friendly solutions, complemented by excellent communication skills and a team-oriented mindset. A certified AI enthusiast with experience in programming and a proven ability to adapt and learn quickly. Actively seeking opportunities in IT to contribute technical knowledge and innovative ideas while growing as a professional.
